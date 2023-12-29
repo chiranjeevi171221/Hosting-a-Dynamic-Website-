@@ -1,1 +1,1 @@
-For this Project there will br NO Coding.
+For this Project there will be NO Coding.
